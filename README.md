@@ -30,17 +30,6 @@ i also have a mood disorder and a few other things
 <p align="center">
   <a href="https://rentry.co/skibidijohn" target="_blank">READ BYI!</a>
 </p>
-
-<p align="center"> 
-  
-
-  <p align="center">
-  <img src="https://64.media.tumblr.com/9946e294509ca1a60905be871cb20d85/b2b2e140ec8eafd1-6d/s1280x1920/43bae76c4202df0ebab5965ed0a311ca6247db8b.pnj" />
-</p>
-
-<p align="center"> 
-
-    <p align="center">
 also  byi ;
   
 hi i do not oversexualize doublefedora, and do not like ppl who do. i am a minor!
@@ -50,6 +39,17 @@ hi i do not oversexualize doublefedora, and do not like ppl who do. i am a minor
 
   do not hate me because of my ships. i am not the fandom, and have my own headcanons. 
   dont go hating me for nothing! especially if you dont know me. its pitiful i have to put this.
+<p align="center"> 
+  
+
+  <p align="center">
+  <img src="https://64.media.tumblr.com/9946e294509ca1a60905be871cb20d85/b2b2e140ec8eafd1-6d/s1280x1920/43bae76c4202df0ebab5965ed0a311ca6247db8b.pnj" />
+</p>
+
+<p align="center"> 
+
+   
+
 <!--
 **chanceslover/chanceslover** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
