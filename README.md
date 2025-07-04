@@ -3,11 +3,15 @@
 </p>
 work in progress!
 <p align="center"> 
-  byi ; 
+  byi ;
+  
 hi i do not oversexualize doublefedora, and do not like ppl who do. i am a minor!
   please dni if you do so, it makes me very uncomfortable. I do this as a coping mechiniasm 
   for years of tramua i have went thru. No i will not tell you! because
   my tramua is personal and you dont get to know abt it.
+
+  do not hate me because of my ships. i am not the fandom, and have my own headcanons. 
+  dont go hating me for nothing! especially if you dont know me.
 <p align="center">
   <img src="" />
 </p>
