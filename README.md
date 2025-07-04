@@ -26,6 +26,8 @@ call of duty lover x1000
   dx. psychosis + adhd
 i also have a mood disorder and a few other things
   i wont say.
+  <p align="center">
+    chance selfshipper ! (coping)
 </p>
 <p align="center">
   <a href="https://rentry.co/skibidijohn" target="_blank">READ BYI!</a>
