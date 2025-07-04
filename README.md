@@ -5,7 +5,7 @@
 <p align="center"> 
 
 <p align="center">
-  <img src="https://files.catbox.moe/dvgv2m.png" />
+  <img src="https://files.catbox.moe/dvgv2m.png"  width="700" />
 </p>
 
 <p align="center"> 
