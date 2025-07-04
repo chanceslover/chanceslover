@@ -1,13 +1,17 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/5d32560113f26940d7261f6993b007d0/b2b2e140ec8eafd1-e0/s1280x1920/347ef70b17d9f45fccc63173e8451f4e28b5e510.pnj" />
 </p>
-
+work in progress!
 <p align="center"> 
-
+  byi ; 
+hi i do not oversexualize doublefedora, and do not like ppl who do. i am a minor!
+  please dni if you do so, it makes me very uncomfortable. I do this as a coping mechiniasm 
+  for years of tramua i have went thru. No i will not tell you! because
+  my tramua is personal and you dont get to know abt it.
 <p align="center">
   <img src="" />
 </p>
-work in progress again lolz
+
 <p align="center"> 
   
   <p align="center">
