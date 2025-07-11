@@ -1,3 +1,6 @@
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=chanceslover.chanceslover)
+
+
 <p align="center">
   <img src="https://64.media.tumblr.com/5d32560113f26940d7261f6993b007d0/b2b2e140ec8eafd1-e0/s1280x1920/347ef70b17d9f45fccc63173e8451f4e28b5e510.pnj" />
 </p>
