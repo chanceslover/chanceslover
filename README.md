@@ -44,6 +44,8 @@ hi i do not oversexualize doublefedora, and do not like ppl who do. i am a minor
 
   do not hate me because of my ships. i am not the fandom, and have my own headcanons. 
   dont go hating me for nothing! especially if you dont know me. its pitiful i have to put this.
+not a yumeshipper either, idm other selfshippers with chance lol, just dont make it a compition. 
+my username is a joke too btw : 3 /silly
 <p align="center"> 
   
 
